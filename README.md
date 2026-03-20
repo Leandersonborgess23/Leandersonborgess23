@@ -74,4 +74,4 @@ Atuar na área de tecnologia como desenvolvedor, adquirindo experiência prátic
 
 ---
 
-💡 *"Transformando conhecimento em soluções através da tecnologia."*]
+💡 *"Transformando conhecimento em soluções através da tecnologia."*
